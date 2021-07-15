@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Donald30498
+- 👀 I’m interested in playing games like APEX && RinWorld
+- 🌱 I’m currently learning Nordic-NRF-52840-DK && SIMCOM
+- 💞️ I’m looking to collaborate on ... almost everything lol
+- 📫 How to reach me "donald30498@outlook.com"
